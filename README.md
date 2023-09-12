@@ -1,1 +1,1 @@
-![🤔](https://www.startpage.com/av/proxy-image?piurl=https%3A%2F%2Fvignette.wikia.nocookie.net%2Fgoosebumps%2Fimages%2F1%2F1a%2FSpinning_thinking_emoji_2.gif%2Frevision%2Flatest%3Fcb%3D20170924235047&sp=1694418486T3aa48911dc0b1555396d032d6fcccdbd316d6021fa88df28d51a4d315611d04d)
+[🤔]
